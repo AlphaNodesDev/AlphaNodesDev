@@ -15,5 +15,5 @@
 🔗 **Omnix Robot** — Omni-directional robotic platform  
 
 ### 📫 Connect with me
-🔗 LinkedIn: *paste your LinkedIn URL*  
-📧 Email: *your email*
+🔗 LinkedIn: *[Abhiram S](https://www.linkedin.com/in/abhiram-s-52433b381/)*  
+📧 Email: *shyjuss8129@gmail.com*
